@@ -1,0 +1,2 @@
+# mariomario
+I obtained the domain name mariomar.io because I like Mario games and am sad about school so I played an hour of a Mario game before bed and thought "Hey isn't it funny that his name is literally Mario Mario?" and then I was thinking about the whole thing where hip young kids buy these .io domains and then I thought, "Hey, I can be one of those hip young tech kids with a cool .io domain" and so I decided this was worth it.
